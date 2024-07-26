@@ -1,8 +1,3 @@
 Ranjodh Kaur
-
-Preyanjal Sharma
-
-RAHUL
-
-SURAJ
+Sawan Kumar
 
