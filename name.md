@@ -1,14 +1,21 @@
-Ranjodh Kaur  
 
+ranjodh kaur
 prabhjot kaur
 =======
+
+Ranjodh Kaur  
+
 Sumit Kumar
 =======
+Ranjodh Kaur
+
+
 
 Simardeep Kaur
 =======
 =======
 
+Shadev singh
 
 saarvi sachdeva
 =======
@@ -16,6 +23,11 @@ saarvi sachdeva
 Sukhwinder Singh
 =======
 Roshan
+=======
+
+priyanshu shukla
+=======
+
 Vansh Jethi
 =======
 
@@ -27,6 +39,7 @@ Rehatpreet kaur
 
 Sawan Kumar
 
+
 Tanveer singh
 
 Preyanjal Sharma
@@ -37,8 +50,5 @@ SURAJ
 
 priyanshu shukla
 =======
-=======
-
-
-SHADEV
+======
 
