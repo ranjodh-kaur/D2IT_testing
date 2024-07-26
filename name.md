@@ -1,1 +1,2 @@
 Ranjodh Kaur
+Sukhwinder Singh
