@@ -1,2 +1,1 @@
-Ranjodh Kaur
 prabhjot kaur
